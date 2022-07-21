@@ -1,1 +1,12 @@
-### Hello there , I'm Illia
+### Hello there ✌, I'm Illia
+
+## About me 👇
+
+I'm a person who really enjoys spending time on the web3.
+I joined the Crypto world in 2020.
+
+Before the crypto, I have a wide range of experience in different roles, mostly in SaaS companies (Customer Relations Manager, CMO, Product Management, Web Developing, UX Audit/Research, etc.) in the real world more than 5 years
+
+### Follow me 
+[Twitter] https://twitter.com/bogun7777
+[Linkedin] https://www.linkedin.com/in/illia-bohun-2b430b23b/
