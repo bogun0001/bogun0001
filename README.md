@@ -7,6 +7,14 @@ I joined the Crypto world in 2020.
 
 Before the crypto, I have a wide range of experience in different roles, mostly in SaaS companies (Customer Relations Manager, CMO, Product Management, Web Developing, UX Audit/Research, etc.) in the real world more than 5 years
 
+### My Hobbies
+
+🎞 I like to shoot videos
+
+🎨 I like create infographics
+
+📃 I love writing articles
+
 
 
 
