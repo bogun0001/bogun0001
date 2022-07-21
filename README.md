@@ -24,3 +24,5 @@ Before the crypto, I have a wide range of experience in different roles, mostly 
 [Twitter] https://twitter.com/bogun7777
 
 [Linkedin] https://www.linkedin.com/in/illia-bohun-2b430b23b/
+
+[Medium] https://medium.com/@illiabogun95
