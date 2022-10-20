@@ -15,9 +15,7 @@ Before the crypto, I have a wide range of experience in different roles, mostly 
 
 📃 I love writing articles
 
-### My team Works
-
-[Twitter] https://twitter.com/AptosEcosystems
+### My  works
 
 [Twitter] https://twitter.com/SuiEcosystem
 
